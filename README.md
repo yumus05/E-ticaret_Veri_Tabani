@@ -1,0 +1,1 @@
+# E-ticaret_Veri_Tabani
